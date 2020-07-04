@@ -2,8 +2,9 @@
 Video Khóa học các loại, giá rẻ như cho
 
 # Thông thin hỗ trợ
-> Fanpage: 
-> Nhóm facebook Kho Video Bài giảng: https://www.facebook.com/groups/KhoVideoBaiGiang
+> Fanpage: https://www.facebook.com/Kho-Video-Khóa-Học-101181401668640
+
+> Nhóm facebook Kho Video Bài giảng: https://www.facebook.com/groups/kho.video.khoa.hoc
 
 # Cách tính giá:
 
