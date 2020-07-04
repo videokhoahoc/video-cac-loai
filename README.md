@@ -13,7 +13,7 @@ List các video ở đây:
 
 
 ###  [01.01]. Kinh doanh mỹ phẩm online
-Xem chi tiết Khóa học gốc tại đây: https://unica.vn/kinh-doanh-my-pham-online
+  > Xem chi tiết Khóa học gốc tại đây: https://unica.vn/kinh-doanh-my-pham-online
 
 ###  [01.02]. 8 bài tập thực tiến về ý tưởng chiến lược - kinh doanh online
 ###  [01.03]. Bốn bước làm chủ tiền bạc
