@@ -1,6 +1,10 @@
 # Hàng ngàn video khóa học các loại giá rẻ như cho
 Video Khóa học các loại, giá rẻ như cho
 
+# Thông thin hỗ trợ
+> Fanpage: 
+> Nhóm facebook Kho Video Bài giảng: https://www.facebook.com/groups/KhoVideoBaiGiang
+
 # Cách tính giá:
 
 **10k**: Chỉ 10k cho 1 khóa học **bất kỳ**
